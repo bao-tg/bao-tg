@@ -6,7 +6,7 @@
 
 ## Fun facts
 - I used to be a vocalist in a band at my university (Although I'm not good at singing, thanks to my band for carrying me along, lol).
-- In my high school, I learned Chinese Chess in 2 weeks (I played with my father/uncles a lot, but never learn it seriously), and got the first place in the school tournament.
+- In my high school, I learned Chinese Chess in 2 weeks (I played with my father/uncles a lot, but never learn it seriously), and got the first place in the school tournament (never have a chance to compete in provincial/national tournament, but probably try in the future).
 
 ## 📫 How to reach me:
 - Email: 21bao.tg@vinuni.edu.vn
