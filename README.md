@@ -6,7 +6,6 @@
 
 ## Fun facts
 - I used to be a vocalist in a band at my university (Although I'm not good at singing, thanks to my band for carrying me along, lol).
-- I casually played poker. My biggest win was finishing first in a freeroll tournament of N8 (around $96).
 
 ## 📫 How to reach me:
 - Email: 21bao.tg@vinuni.edu.vn
