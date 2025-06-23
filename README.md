@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 - I'm Truong Gia Bao (people tend to call me Bao), a current third-year student, pursuing Computer Science at VinUniversity.
-- I spent my high school years immersed in math olympiads—now I’m a computer science student, learn how to build the world using computer.
+- I spent my high school years immersed in math olympiads—now I’m a computer science student, learn how to build the world via computer.
 - In my spare time, I dive into all kinds of curious corners— poker, music, game theory, philosophy, politics, physics, even a bit of literature. Becoming a polymath is my favorite side quest.
 
 ## Fun facts
